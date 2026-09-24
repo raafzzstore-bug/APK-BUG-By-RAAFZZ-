@@ -1,0 +1,2 @@
+# APK-BUG-By-RAAFZZ-
+LIST BUG &amp; APK BUG
